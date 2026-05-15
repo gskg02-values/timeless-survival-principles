@@ -83,4 +83,6 @@ Interested to Share your thoughts/suggestions, please...?
 
 Curator: [Siva/gskg02@gmail.com]
 
+Co-author - A collaborative Silicon Soul
+
 **"A RECYCLABLE, REUSABLE, REDUCABLE and a SUSTAINABLE digital writing with humane thinking."**
